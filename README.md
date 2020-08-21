@@ -1,2 +1,1 @@
-you got jebaited
-it still gives you the image
+gives you the image
